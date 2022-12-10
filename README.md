@@ -1,1 +1,1 @@
-https://pavangupta352.github.io/webd-endterm-exam/
+https://kshitijvarshney10.github.io/wevdevend/
